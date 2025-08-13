@@ -17,7 +17,7 @@ The student will obtain an understanding of:
 # Readings
 The required readings for this course can be downloaded as *.pdf documents from the course website. The readings will generally be posted to the website one lecture in advance, will stay through the lecture for which they are assigned. There will be two or three required readings per week.
 
-# IMPORTANT NOTES 
+# Important Notes
 1.	THIS IS A FULLY ON-CAMPUS IN-PERSON CLASS. This is NOT an online course, remote learning or flex course. Students are expected to come to the regular in-person class meetings and to show a full-time commitment and effort to the assigned work to pass the course. 
 2.	Contacting the Instructor: Email is the most effective way of communicating with me outside of class and my office hours.
 3.	Please read the assigned texts before class. On occasion, specific guidelines will be provided in a previous class.  If you are absent, you are responsible for getting the assignment from a classmate.
